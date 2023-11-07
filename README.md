@@ -7,11 +7,11 @@
 
 - 🔭 I’m currently working on **amazing stuff**
 
-- 🌱 I’m currently learning **a lot**
+- 🌱 I’m currently learning **interesting things**
 
-- 👯 I’m looking to collaborate on **great things**
+- 👯 I’m looking to collaborate on **great projects**
 
-- 📫 How to reach me **kelvinnjau@gmail.com**
+- 📫 How to reach me **qevohnjau@gmail.com**
 
 - ⚡ Fun fact **You can't be funny and handsome**
 
