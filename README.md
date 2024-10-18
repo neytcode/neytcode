@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **qevohnjau@gmail.com**
 
-- ⚡ Fun fact **You can't be funny and handsome**
+- ⚡ Fun fact **You can be funny and handsome**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
